@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Joy-Brunna 😘
+## Bem-vindo(a),Eu sou a Joyce Brunna 😘
 
  <div>
    <a href="https://github.com/joycebrunna">
